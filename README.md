@@ -5,29 +5,29 @@
 
 - Madina Prophet Mosque VR: Panoramic picture for "الروضة الشريفة" can be moved with your finger.
 	Just touch the screen with your finger and move it.
-	https://www.spinattic.com/1580/Prophet_Mosque?full
+	(https://www.spinattic.com/1580/Prophet_Mosque?full)
 
 
 - Quranic-Diagrammatic-Overviews-Draft-JULY-2015(1)
-	https://www.quranicframework.com/uploads/1/2/0/5/120564999/quranic_diagrammatic_overviews_draft_july_2015.pdf
-	https://www.quranicframework.com/
+	(https://www.quranicframework.com/uploads/1/2/0/5/120564999/quranic_diagrammatic_overviews_draft_july_2015.pdf)
+	(https://www.quranicframework.com/)
 
 
 - Mecca at the Dawn of Islam @Binimaf al-ateeqi
-	https://www.youtube.com/watch?v=vooLHdL0Xp8
-	https://www.binimad.com/view-book/Makkah-Map-c.-600-AD
-	@binimad  Youtube channel videos:  https://www.youtube.com/channel/UCI9jxX8c5VHRs0DC1-87BLw/videos 
+	(https://www.youtube.com/watch?v=vooLHdL0Xp8)
+	(https://www.binimad.com/view-book/Makkah-Map-c.-600-AD)
+	@binimad  Youtube channel videos:  (https://www.youtube.com/channel/UCI9jxX8c5VHRs0DC1-87BLw/videos) 
 
 
 - The Genius - Motivating Life Story Of Imam Al Bukhary
-	https://www.instagram.com/tv/CAFrr-UgXQp/?igshid=arhtwuke991f
+	(https://www.instagram.com/tv/CAFrr-UgXQp/?igshid=arhtwuke991f)
 	[Full Video] The Genius - Motivating Life Story Of Imam Al Bukhary
 	
 
 - Khulasa e Quran. 	Understand Basic Summary of each Juz and attempt Quiz based on it
-	📖 Link for reading:	https://drive.google.com/folderview?id=1RzSEyMvOThf6xkD4KQApdiFuDlQlepy0 
-	🔗 Video Link  (English Caption) 📹:	https://www.youtube.com/playlist?list=PLIoPC_cETBFmSwKYQFTJ-wS80M00I_qI3
-	🔗 Audio Link 👂(Only URDU Audios): 	https://drive.google.com/open?id=1YkTidufPva093jOvKYj6-9vnPytBDxAr
+	📖 Link for reading:	(https://drive.google.com/folderview?id=1RzSEyMvOThf6xkD4KQApdiFuDlQlepy0) 
+	🔗 Video Link  (English Caption) 📹:	(https://www.youtube.com/playlist?list=PLIoPC_cETBFmSwKYQFTJ-wS80M00I_qI3)
+	🔗 Audio Link 👂(Only URDU Audios): 	(https://drive.google.com/open?id=1YkTidufPva093jOvKYj6-9vnPytBDxAr)
 
 
 ---
