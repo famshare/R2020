@@ -1,6 +1,6 @@
 # Ramadan 2020 - family shared resources
 
-Few Resources shared during Ramadan 2020:
+**Few Resources shared during Ramadan 2020:**
 
 
 - Madina Prophet Mosque VR: Panoramic picture for "الروضة الشريفة" can be moved with your finger.
@@ -31,7 +31,7 @@ Few Resources shared during Ramadan 2020:
 
 
 ---
-Apps:
+**Apps:**
 - Islam 360 App - zahid hussain quran app (has urdu voice recognition)
 	https://www.youtube.com/watch?v=TcpGKJSZvG4
 	Islam 360 - Search in the Quran & Hadith | Zahid Hussain Chihpa
@@ -42,7 +42,7 @@ Apps:
 
 
 ---
-Long-read Articles (these are in their own files):
+**Long-read Articles (these are in their own files; just click on the filename in directory):**
 - Article - Yusuf AS vs. Musa AS story comparison
 - Article - AN ABSOLUTE MUST DUA FOR TAHADJUD THIS RAMADHAN FOR ALL PARENTS WORLD OVER
 - Article - awesome Quran Quiz
@@ -53,6 +53,6 @@ Long-read Articles (these are in their own files):
 
 
 ---
-Misc:
-o Inspirational: Convert learnt quran, arabic from scratch. If a Convert can do it, u can do it too.
+**Misc:**
+- Inspirational: Convert learnt quran, arabic from scratch. If a Convert can do it, u can do it too.
   - jae_deen tiktok video
