@@ -30,6 +30,18 @@
 	🔗 Audio Link 👂(Only URDU Audios): 	(https://drive.google.com/open?id=1YkTidufPva093jOvKYj6-9vnPytBDxAr)
 
 
+- Ustadha Farhat Hashmi related resources
+	(https://www.farhathashmi.com/quran/tafsir/?giml-id=730)
+	Quran kay Moti-2020⬆️
+	(https://www.farhathashmi.com/quran/tafsir/?giml-id=747)
+	
+- Ustadh Nouman Ali Khan related resources
+	Amazed by the Quran Season 2
+	(https://www.youtube.com/playlist?list=PLutdSTmJ7bAI7_C4iDzJWpHhGlnqHUI_f&app=desktop)
+	
+	Ramadan 2019 Gems 
+	(https://www.youtube.com/playlist?list=PLutdSTmJ7bAJbntRTlhymSIS_oiFWd8Qg&app=desktop)
+
 ---
 **Apps:**
 - Islam 360 App - zahid hussain quran app (has urdu voice recognition)
