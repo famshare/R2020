@@ -30,10 +30,17 @@
 	🔗 Audio Link 👂(Only URDU Audios): 	(https://drive.google.com/open?id=1YkTidufPva093jOvKYj6-9vnPytBDxAr)
 
 
+- www.equranlibrary.com
+
+
+- www.aswaatulqurraa.com
+
+
 - Ustadha Farhat Hashmi related resources
 	(https://www.farhathashmi.com/quran/tafsir/?giml-id=730)
 	Quran kay Moti-2020⬆️
 	(https://www.farhathashmi.com/quran/tafsir/?giml-id=747)
+
 	
 - Ustadh Nouman Ali Khan related resources
 	Amazed by the Quran Season 2
