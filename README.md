@@ -69,10 +69,9 @@
 
 ---
 **Apps:**
-- Islam 360 App - zahid hussain quran app (has urdu voice recognition)
-	https://www.youtube.com/watch?v=TcpGKJSZvG4
-	Islam 360 - Search in the Quran & Hadith | Zahid Hussain Chihpa
-	
+- Islam 360 App - Zahid Hussain Chihpa quran app - Search in the Quran & Hadith (has urdu voice recognition)
+	https://youtu.be/TcpGKJSZvG4?t=1710  (Author's humble beginnings; demo)
+
 
 - Tasmee - hifz tester app
 	https://play.google.com/store/apps/details?id=com.eqra.android.tasmee&hl=en_US
